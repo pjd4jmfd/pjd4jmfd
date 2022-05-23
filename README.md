@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pjd4jmfd
 - 👀 I’m interested in technology in music - especially digital pianos and virtual pipe organs
-- 🌱 I’m currently learning piano and pipe oran
+- 🌱 I’m currently learning piano and pipe organ with a focus on the Baroque period.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by chat on here.
 
